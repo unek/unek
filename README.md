@@ -1,4 +1,9 @@
-### Hi there 👋
+i drink lots of jagermeister and red bull and my favorite movie is [sorcerer](https://www.imdb.com/title/tt0076740/)
+
+> born to shit
+> 
+> forced to wipe
+
 
 <!--
 **unek/unek** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
